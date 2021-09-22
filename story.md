@@ -8,4 +8,4 @@ As the mouse was passing by, she heard the roar and found the lion struggling ha
 
 The lion thanked the little mouse for her help and the mouse reminded him that she had finally repaid the lion for sparing her life before. Thereafter, the lion and the mouse became good friends and lived happily in the forest.
 
-Moral of the story:
+Moral of the story: Love and kindness are never wasted. You can accomplish by kindness, which you cannot by force.
